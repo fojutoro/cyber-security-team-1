@@ -1,0 +1,5 @@
+# Cyber security super
+Marek Kujan-Privrel, Juraj Durcek, Michal Adam
+
+## Preco neklikat linky
+Lebo to je blbe
